@@ -1,1 +1,1 @@
-# Use this [email address](mailto:castillos-02.sismica@icloud.com) to contact the app developer.
+# Use this [email address](mailto:castillos-02.sismica@icloud.com) to contact me.
