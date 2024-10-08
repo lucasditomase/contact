@@ -1,3 +1,2 @@
-# Tôi không thu thập bất kỳ dữ liệu nào từ người dùng của mình (không bao giờ có, sẽ không bao giờ).
-# Không có ứng dụng nào của tôi có quảng cáo, phần mềm theo dõi hoặc SDK của bên thứ ba.
-# Tôi luôn sử dụng các công nghệ mới nhất hiện có để bảo vệ dữ liệu người dùng.
+# Các email rác (bao gồm cả tiếp thị và tin nhắn trống) sẽ bị bỏ qua. Tôi không quan tâm đến bất kỳ sản phẩm hoặc giao dịch nào. Đừng lãng phí thời gian của bạn hoặc của tôi.
+# [Địa chỉ email](mailto:cuscuta-comenzado.0p@icloud.com) này chỉ dành cho khách hàng.
