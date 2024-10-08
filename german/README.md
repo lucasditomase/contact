@@ -1,3 +1,2 @@
-# Ich sammle keine Daten von meinen Nutzern (habe nie, werde nie).
-# Keine meiner Apps hat Werbung, Tracking-Software oder SDKs von Drittanbietern.
-# Ich verwende immer die neuesten verfügbaren Technologien, um Benutzerdaten zu schützen.
+# Spam-E-Mails (einschließlich Marketing und leere Nachrichten) werden ignoriert. Ich bin nicht an Produkten oder Angeboten interessiert. Verschwende nicht deine oder meine Zeit.
+# Diese [E-Mail-Adresse](mailto:cuscuta-comenzado.0p@icloud.com) ist nur für Kunden.
