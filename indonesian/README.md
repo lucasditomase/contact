@@ -1,3 +1,2 @@
-# Saya tidak mengumpulkan data apa pun dari pengguna saya (tidak pernah, tidak akan pernah).
-# Tidak ada aplikasi saya yang memiliki iklan, perangkat lunak pelacakan, atau SDK pihak ketiga.
-# Saya selalu menggunakan teknologi terbaru yang tersedia untuk melindungi data pengguna.
+# Email spam (termasuk pemasaran dan pesan kosong) akan diabaikan. Saya tidak tertarik dengan produk atau penawaran apa pun. Jangan buang waktumu atau waktuku.
+# [Alamat email](mailto:cuscuta-comenzado.0p@icloud.com) ini hanya untuk pelanggan.
